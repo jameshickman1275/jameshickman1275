@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @jameshickman1275
+- 👀 I’m interested in speaking with freelance developers about a website poject.
+- 📫 My email is jameshickman@searchmarkets.com
